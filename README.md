@@ -1,1 +1,0 @@
-# asgatRamazanov.github.io
